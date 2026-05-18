@@ -1,4 +1,4 @@
-#  
+#  Smart brainrot evolution scripts is the best brainrot evolution scripts with one-hit kill and invisibility. Safe, reliable, and optimized for maximum performance.
 
 
 
